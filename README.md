@@ -1,0 +1,1 @@
+# Golden-MA-MTF-TT-x5-indicator
